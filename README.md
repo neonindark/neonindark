@@ -1,0 +1,5 @@
+-  Hi, I’m @neonindark
+-  I’m interested in idk, stuff?
+-  I’m currently learning javascript
+- 😄 Pronouns: im a dude
+- ⚡ Fun fact: i like Stephen Hawking
